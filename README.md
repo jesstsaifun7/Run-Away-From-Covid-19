@@ -3,6 +3,6 @@
 
 請下載整份檔案，並點擊final project.exe檔執行遊戲。
 
-也可以點擊以下連結觀看Demo影片
+也可以點擊以下連結觀看Demo影片👇
 
 https://youtu.be/FDDXpf9cw0o
