@@ -5,4 +5,4 @@
 
 也可以點擊以下連結觀看Demo影片👇
 
-https://youtu.be/FDDXpf9cw0o
+https://drive.google.com/file/d/1qwZe_aYLqzUGB_-x1f4q6qoY4F0Sqcz9/view?usp=drive_link
